@@ -1,1 +1,1 @@
-# A_Lenda_do_Combate_Extraterrestre
+Acompanhe a incrível jornada de Galdric pelo o Reino de Kanfrem como objetivo de proteger o reino dos aliens
